@@ -14,7 +14,7 @@
  
 <br>
  
-### Para contato, segue as redes sociais abixo
+### Para contato, segue as redes sociais abaixo:
  
 <div>
  
